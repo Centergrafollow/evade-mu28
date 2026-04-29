@@ -1,4 +1,4 @@
-
+hidden evade Script offers the most advanced evade Script, with anti-ban and auto-collect. Perfect for dominating any match.
 
 
 
